@@ -1,2 +1,0 @@
-# skolprojektnti
-skolprojekt nti
